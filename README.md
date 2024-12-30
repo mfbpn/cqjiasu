@@ -1,6 +1,6 @@
 # 创奇机场官网地址
 
-最新地址：[cqjiasu.top](https://go.cqjiasu.top/#/register?code=acwaxka3)
+最新地址：[cqjiasu.top](https://go.cqjiasu.top/#/register?code=TFs398hg)
 
 ## 创奇机场介绍
 
